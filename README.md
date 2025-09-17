@@ -1,2 +1,3 @@
 # EXPRESS-DELIVERY
 De plek met alle info van het prototype bordspel: EXPRESS DELIVERY
+GRAAG ALLEEN OPENEN OF KOPIEREN! NIET KNIPPEN AUB
